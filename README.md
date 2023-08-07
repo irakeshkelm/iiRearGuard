@@ -6,17 +6,17 @@ https://rearguard.planet.ii
 
 Check out, 
 
-trampsAndTramping.txt (Actively updated)
+conservativesGamePrincessesCommunistsSocialists.txt (Actively updated)
 
 then, continue
 
 to Check out,
 
-waveComm.txt (in this folder)
+americansGamePrinceRoyalists.txt (in this folder)
 
 if, still interested, Check out
 
-electronLegal.txt (in this folder)
+illegalMalesGameCode.txt (in this folder)
 
 Build and Operationalize a Planet. Expand and Update Independent Interest
 
